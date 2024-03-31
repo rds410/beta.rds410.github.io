@@ -1,1 +1,1 @@
-# beta.rds410.github.io
+# beta.lgcit.co
